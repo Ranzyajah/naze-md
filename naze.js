@@ -2,7 +2,7 @@
 
 Yg Mau Sv Nomerku?
 
-wa.me/6285875158363
+wa.me/6285231277718
 
 Minimal Kasih Cr kalo mau reupload😡
 
